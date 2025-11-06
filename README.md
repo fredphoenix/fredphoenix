@@ -1,4 +1,4 @@
-# Hi there 👋, Leo here.
+# Hi there 👋, I'm Fred.
 
 &#x20;
 
